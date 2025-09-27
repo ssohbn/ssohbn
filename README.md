@@ -1,1 +1,1 @@
-[![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=ssohbn&layout=donut)](https://github.com/anuraghazra/github-readme-stats)
+totally in love with the computer c:
